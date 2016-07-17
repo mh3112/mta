@@ -1,2 +1,3 @@
 I'm Minh Hang
-so cute
+so cute.
+She is learning!!!
